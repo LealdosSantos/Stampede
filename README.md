@@ -1,1 +1,1 @@
-# Stampede
+# Calgary-Stampede
